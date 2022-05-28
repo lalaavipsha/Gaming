@@ -1,2 +1,2 @@
 # Gaming
-have look : https://lalaavipsha.github.io/Gaming/
+Have a look: https://lalaavipsha.github.io/Gaming/
